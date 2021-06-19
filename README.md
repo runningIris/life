@@ -6,7 +6,7 @@ All those misery memories are fading away.
 
 I did really well this year. Instead of escaping, I face the reality. It is really brave for me to achieve that.
 
-Misery is inevitable, but I manage to overcome it, with great efforts. I think it through, I make a path of my own. I change my own destiny. I earn my own happiness.
+Misery is inevitable, but I manage to overcome it, with great efforts. I thought it through. I made a path of my own. I changed my own destiny. I earned my own happiness.
 
 I deserve it. I deserve to be happy.
 

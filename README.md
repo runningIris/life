@@ -8,6 +8,8 @@ I did really well this year. Instead of escaping, I face the reality. It is real
 
 Misery is inevitable, but I manage to overcome it, with great efforts. I thought it through. I made a path of my own. I changed my own destiny. I earned my own happiness.
 
+Misery is nothing to be proud of, but my achivement of overcoming is.
+
 I deserve it. I deserve to be happy.
 
 After all, I am a really nice lady with generosity, kindness, bravery, and wits.

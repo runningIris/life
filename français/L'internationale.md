@@ -2,7 +2,7 @@ Debout, les damnés de la terre
 
 Debout, les forçats de la faim
 
-Le rasion tonne en son cratère
+Le raison tonne en son cratère
 
 C'est l'éruption de la fin
 
@@ -70,7 +70,7 @@ La terre n'appartient qu'aux hommes
 
 L'oisif ira loger ailleurs
 
-Combien de nos chairs es repaissent
+Combien de nos chairs se repaissent
 
 Mais si les corbeaux, les vautours
 
